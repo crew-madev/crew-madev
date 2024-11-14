@@ -1,4 +1,4 @@
-# ***crew-maDev*** ✌️
+# ***crew.maDev*** ✌️
 ---
 
 - mad dev, made victory
